@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... :{}
 - 📫 How to reach me ... reyhaneh.parviziyan@gmail.com
 - 😄 Pronouns: ... she/her
-- ⚡ Fun fact: ... I donno :{}
+- ⚡ Fun fact: ... I love making coffee, but my num#1 fuel is always tea 🤤
 
 <!---
 Reyhanishere/Reyhanishere is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
