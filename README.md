@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Reyhanishere or just Reyhaneh 
-- 👀 I’m interested in ... coding, medicin and reading fiction books
+- 👀 I’m interested in ... coding, medicine and reading fictional books
 - 🌱 I’m currently learning ... web development
 - 💞️ I’m looking to collaborate on ... :{}
-- 📫 How to reach me ... reyhaneh.parviziyan@gmail.com
+- 📫 How to reach me ... reyhaneh.parviziyan@gmail.com , https://t.me/Qimpdsb on telegram and www.linkedin.com/in/reyhaneh-parviziyan-21744a25b
 - 😄 Pronouns: ... she/her
 - ⚡ Fun fact: ... I love making coffee, but my num#1 fuel is always tea 🤤
 
